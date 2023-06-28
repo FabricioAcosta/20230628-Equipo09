@@ -1,2 +1,2 @@
-Fabricio Acosta - Lizeth Alonso
+Fabricio Acosta - Lizeth Alonso - Juan Palaceto
 
